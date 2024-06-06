@@ -183,4 +183,4 @@ Com essas explicações detalhadas, você agora tem um entendimento completo de 
 *Autor:*
 [Geovana Aparecida de Lima]
 
-*Meu Linkedin*: [Feed](https://github.com/Geovanaaplima?tab=repositories)
+*Meu Linkedin*: [Feed](https://www.linkedin.com/in/geovana-aparecida-878293281/recent-activity/all/)
